@@ -11,14 +11,6 @@ This repository is a companion to my Medium post ["*Creating Mandalas with Flora
 
 ![](images/S2K3-30.png)
 
-![](images/S2K5-???-3.png)
-
 ![](images/S3K3-4486031731065.png)
 
 ![](images/S3K3-5727312622606.png)
-
-![](images/S3K5-???-9.png)
-
-![](images/S3K5-???-56.png)
-
-![](images/S3K5-???-37.png)
